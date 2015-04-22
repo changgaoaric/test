@@ -1,3 +1,0 @@
-ljkda
-.v
-asd'vk
